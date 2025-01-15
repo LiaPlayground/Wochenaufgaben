@@ -56,6 +56,23 @@ Es werden jeden Montag die Aufgaben gewechselt und Beispiellösungen zur vergang
 
 ## Wochenaufgabe 18
 
+Bei der Wochenaufgabe 18 erwarten euch spannende Rechenrätsel, die euch dabei helfen, das Rechnen zu üben und noch besser zu werden! Diese Aufgaben sind wie kleine Detektivspiele für eure Mathe-Fähigkeiten und decken viele verschiedene Themen ab. Hier ein kleiner Überblick, was euch erwartet:
+
+🔢 **Große Additionen:**\
+Ihr könnt große Zahlen addieren, indem ihr Zehnerstapel bildet – zum Beispiel addiert ihr drei große Zahlen übereinander und findet heraus, was zusammen dabei rauskommt. Mit etwas Übung macht das schnell richtig Spaß!
+
+➕ **Rechnen mit Wörtern:**\
+Manchmal beschreibt euch der Text, was ihr tun sollt. Zum Beispiel: „Zu dem Produkt aus 11 und 8 wird 23 addiert.“ Ihr müsst die richtige Rechnung aufschreiben und ausrechnen. Das ist wie ein kleines Rätsel, das ihr lösen könnt!
+
+🚌 **Mathe und Alltag:**\
+Stellt euch vor, eine Stadt kauft neue Busse! Ihr rechnet aus, wie viel Geld sie dafür braucht. Das zeigt euch, wie Mathe im echten Leben hilft.
+
+📏 **Einheiten umrechnen:**\
+Von Zentimetern zu Metern, Gramm zu Kilogramm oder Minuten zu Stunden – ihr werdet immer besser im Umrechnen. Das ist super praktisch und oft überraschend einfach!
+
+Übung macht den Meister – und jede Aufgabe ist ein kleiner Schritt zum großen Erfolg!
+
+**Seid neugierig, probiert die Aufgaben aus und habt Spaß beim Rechnen! 🎉**
 
 ### Aufgabe 1
 
